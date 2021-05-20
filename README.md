@@ -1,3 +1,3 @@
 # NailUserbot
 Bismillah
-Kapan kapam dilanjut
+Kapan kapan dilanjut
